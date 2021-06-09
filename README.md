@@ -1,0 +1,4 @@
+- Why am i here? To steal code and use it for myself!
+- Im not very smart
+- Im also not very creative
+- All i want is to GIT GUD
